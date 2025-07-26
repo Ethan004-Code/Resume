@@ -78,6 +78,10 @@ Beyond academics, I'm deeply curious and enjoy sharing and learning different id
 ---
 
 ## 📜 Education
+**[American Degree Transfer Program]** - [Sunway University]  
+[Summer 2022] – [Spring 2024]  
+- Relevant coursework: [Course 1, Course 2, ...]
+
 **[Data Science]** - [San Jose State University]  
 [Fall 2024] – [-]  
 - Relevant coursework: [Course 1, Course 2, ...]
