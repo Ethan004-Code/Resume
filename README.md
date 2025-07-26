@@ -50,7 +50,10 @@ Beyond academics, I'm deeply curious and enjoy sharing and learning different id
 - I help with closing by sweeping around the cafe and taking out the trash.
 
 [Personal Reflection] 
-
+-First work in my life felt excited and fufill
+-Although it was a short while im glad that I worked while waiting for my results to continue onto University in Sunway to pursue my degree
+-Learned several new things, such as serving customers needs, encouraging well comunicated statements to ensure there's no confusion with co-workers, bosses and customers.
+-Although some may think its pretty direct and simple work i personally feel it is a stepping point into a new exciting journey
 
 **[Job Title]** - [Company Name]  
 [Start Date] – [End Date]  
